@@ -1,6 +1,4 @@
-# Fetch the Keg Ride
-
-**Update June 5: Note that the air quality is not great today. The ride is happening. See you tonight!**
+# Fetch the Keg Ride 2026
 
 ![Fetch the Keg](img/fetch_the_keg_photo.jpg)
 
@@ -8,7 +6,7 @@ The [Hop Garden](https://www.thehopgarden.net/) is one of our beverage sponsors 
 
 ## The date
 
-The ride will happen on Thursday, June 5th. Departure is 5:30pm, sharp.
+The ride will happen on Thursday, June 6th, 2026 Departure is 5:30pm, sharp.
 
 ## The route
 
@@ -24,8 +22,10 @@ https://bkrtr.de/wszta
 - Do I need to have lights on my bike?
     - Yes.
 - Do I need to pay for my own food and drink at the Hop Garden?
-    - Yes.
+    - Yes. (maaaaybe there will be a deal on offer)
 - Is the route safe?
     - You're doing this at your own risk. Much of the route is on the Southwest Path and Badger State Trail, i.e. no cars. The last bit into Paoli is on a town road with no shoulders or bike lanes.
 - If my bike breaks down on the ride, will someone help me?
     - There are lots of nice people on the ride, but ultimately it's up to you to have a backup plan.
+- Are e-bike riders welcome?
+    - Class 1, 2, and 3 e-bike riders are definitely welcome. 
