@@ -2,23 +2,31 @@
 
 ![Fetch the Keg](img/fetch_the_keg_photo.jpg)
 
-The [Hop Garden](https://www.thehopgarden.net/) is one of our beverage sponsors for the [Madison Bike Week](https://www.madisonbikes.org/bikeweek) Party on Friday! But how are we going to get the keg from Paoli to Brittingham Park?? You guessed right: By bike! Meet at Crazylegs Plaza (Regent/Monroe intersection) for a 5:30pm (sharp) departure. We’ll ride the SW Path and Badger State Trail to the Hop Garden at a leisurely pace (12 mph) and after a beverage/food break return the same way. Rain or shine. Distance is about 27 miles. If you want to go faster or slower, that's cool. Route is all on off-street paved paths except for the last section, which is on shoulderless country roads with light to moderate traffic and some hills. Please bring lights.
+*** NEW IN 2026: New start location, two groups! Read below.***
+
+The [Hop Garden](https://www.thehopgarden.net/) is one of our beverage sponsors for the [Madison Bike Week Party on Friday](https://www.madisonbikes.org/events/bikeweek-2026/events/paul-lata)! But how are we going to get the keg from Paoli to Brittingham Park?? You guessed right: By bike! 
+
+Meet at the Beltline Overpass on the Southwest Path (at Pacific Cycle) for a 5:45pm (sharp) departure. We'll ride the SW Path and Badger State Trail to the Hop Garden at a leisurely pace (12 mph) and enjoy the Hop Garden's beverage and food option. For the way back, ride at your own pace or ride with the keg. Rain or shine. Distance is about 20 miles total. The route is all on off-street paved paths except for the last section, which is on shoulderless country roads with light to moderate traffic and some hills. Please bring lights and make sure you have a trail pass. 
+
+People who want to go faster: The main group with the trailer will go the usual 12 mph. Faster folks can start first and ride their own pace. We'll meet ya at the Hop Garden.
 
 ## The date
 
-The ride will happen on Thursday, June 6th, 2026 Departure is 5:30pm, sharp.
+The ride will happen on Thursday, June 6th, 2026 Departure is 5:45pm, sharp.
 
 ## The route
 
-27 miles (out and back), 550 ft of elevation 
+20 miles (out and back), 550 ft of elevation 
 
-https://bkrtr.de/wszta
+[https://bkrtr.de/gbrh6](https://bkrtr.de/gbrh6)
 
-![The route](img/route.png)
+![The route](img/route2026.png)
 
 ## FAQ
 - Do I need to RSVP?
     - Nope, just show up!
+- What if the weather is bad?
+    - With the exception of severe weather (thunderstorms, hail, etc.), the ride is going to happen. Check this page to see any updates.
 - Do I need to have lights on my bike?
     - Yes.
 - Do I need to pay for my own food and drink at the Hop Garden?
