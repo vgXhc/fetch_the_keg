@@ -12,7 +12,7 @@ People who want to go faster: The main group with the trailer will go the usual 
 
 ## The date
 
-The ride will happen on Thursday, June 6th, 2026 Departure is 5:45pm, sharp.
+The ride will happen on Thursday, June 4th, 2026 Departure is 5:45pm, sharp.
 
 ## The route
 
