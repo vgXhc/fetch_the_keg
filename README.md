@@ -2,7 +2,7 @@
 
 ![Fetch the Keg](img/fetch_the_keg_photo.jpg)
 
-*** NEW IN 2026: New start location, two groups! Read below.***
+*** Bike Week 2026 is over. Thanks to everyone who joined me on the ride!***
 
 The [Hop Garden](https://www.thehopgarden.net/) is one of our beverage sponsors for the [Madison Bike Week Party on Friday](https://www.madisonbikes.org/events/bikeweek-2026/events/paul-lata)! But how are we going to get the keg from Paoli to Brittingham Park?? You guessed right: By bike! 
 
